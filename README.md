@@ -1,1 +1,1 @@
-mansion gdrag esp
+random kid gdrag esp and bonus mansions
